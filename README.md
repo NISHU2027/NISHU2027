@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ALOKK27
+- 👋 Hi, I’m @ALOK27
 - 👀 I’m interested in DESIGNING FOR CLIENT
 - 🌱 I’m currently learning COMPUTER SCIENCE
 - 💞️ I’m looking to collaborate on GRAPHIC BASE CLIENTS
